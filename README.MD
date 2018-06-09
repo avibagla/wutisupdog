@@ -8,6 +8,6 @@ Why, oh why, is this the response to what seems to be a question? All we ask is 
 ###### But why do I cre?
 knowledge and information is the path and desire of any creator. wut is UP DOG? PLEASE TELL ME!
 
-![updog?](https://media.giphy.com/media/3o85xsGXVuYh8lM3EQ/giphy.gif)
+![updog?](https://i.imgur.com/H981AN7.jpg)
 
 [pls help me](www.avibagla.com)
