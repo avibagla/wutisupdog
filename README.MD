@@ -10,4 +10,4 @@ knowledge and information is the path and desire of any creator. wut is UP DOG? 
 
 ![updog?](https://i.imgur.com/H981AN7.jpg)
 
-[pls help me](www.avibagla.com)
+[pls help me](https://www.avibagla.com)
